@@ -19,4 +19,4 @@ this morning I ate an apple and it was very tasty, but not nearly as tasty as th
 wzz.
 no commit.
 # null
-one time I saw an hilarious frog that reminded me of 
+one time I saw a goofy frog that reminded me of 
