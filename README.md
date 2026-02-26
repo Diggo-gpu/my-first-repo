@@ -19,4 +19,4 @@ this morning I ate an apple and it was very tasty, but not nearly as tasty as th
 wzz.
 no commit.
 # null
-one time I saw a goofy frog that reminded me of my italian high school tacher. Then I've felt ashamed because she was right behind me. Nah, 
+one time I saw a goofy frog that reminded me of my italian high school tacher. Then I've felt ashamed because she was right behind me. Nah, I 
